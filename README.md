@@ -1,2 +1,2 @@
 ## URL
-https://lucasjkofcc.github.io/Guia_Turistico_Itaqui_Teatro/
+https://lucasjkofcc.github.io/Guia_Turistico_Itaqui_Igreja/
